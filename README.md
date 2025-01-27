@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Gabrielle
+- 👀 I’m interested in Project management, data analytics, consulting, UX/Design, and marketing
+- 🌱 I’m currently learning Project Management and Data Analytic certifications
+- 💞️ I’m looking to collaborate on Healthcare and IT work, especially EMR technology
+- 📫 How to reach me www.linkedin.com/in/gabriellehall11
+- 😄 Pronouns: She/her
+- ⚡ Fun fact: I love to play Spades and looking for tournaments!
